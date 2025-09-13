@@ -1,2 +1,0 @@
-# veribiliminegiris_odev1
-
